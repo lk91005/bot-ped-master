@@ -1,1 +1,3 @@
-# bot-ped-master
+# Self3
+SELFBOT LINE 
+❌ஆণเฟีєՃุ๑இำ❌
